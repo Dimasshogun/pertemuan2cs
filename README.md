@@ -1,4 +1,4 @@
 # pertemuan2cs
-Ariningtyas Hetsbi Islami
-18090029
+Dimas Shofa Gunarso
+18090061
 3B
